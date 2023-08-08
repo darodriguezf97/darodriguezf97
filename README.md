@@ -18,5 +18,5 @@ I work doing:
 
 Want to know more about the projects I have done? Check my portfolio in my [website](https://darfcpb.wixsite.com/diegorodriguez)
 
-📫 If you want to reach me you can contact me in: da.rodriguezf97@gmail.com
+📫 If you want to reach me: da.rodriguezf97@gmail.com
 
