@@ -1,6 +1,6 @@
 # Hey there! 🙋🏽‍♂️
 
-I'm Diego, a **Data analyst and Bioinformatician** who's passionate about helping businesses achieve their goals through data-driven solutions.
+I'm Diego, a **Data Professional and Bioinformatician** who's passionate about helping businesses achieve their goals through data-driven solutions.
 
 I work doing: 
 
